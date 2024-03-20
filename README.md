@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+I am a 4th-year medical student with a strong focus in research. I have a passion for collaborating with fellow research enthusiasts and exchanging innovative ideas. I am eager to contribute to advancements and enhancements in the field of medicine, neurology, neuroscience and oncology by utilizing my skills in team building. Currently, I am actively seeking research opportunities to further my contributions.
 <!--
 **ahmedbazil/ahmedbazil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
